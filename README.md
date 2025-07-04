@@ -36,7 +36,7 @@ This Power BI project presents a complete analysis of memo performance based on 
 **Md. Zabed Hosen**  
 Assistant MIS Officer – Consumer Insights Analyst  
 📧 zabedhosen3@gmail.com
-🔗 www.(https://linkedin.com/in/zabed-hosen3
+🔗 www.linkedin.com/in/zabed-hosen3
 
 ---
 
